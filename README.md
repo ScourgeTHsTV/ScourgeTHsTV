@@ -9,12 +9,13 @@ hello! im pace! you can also call me lenlo. im glad you're here!
 
 PLEASE int, c+h anytime, even if i'm with someone (unless they don't want you to). any ships, i wanna see your rarepairs too.
 
-live laugh love pace and rosy and fleetway and shadow and sonic and niku and pace and surge and manic and mephiles and silver and pace and tenna
+live laugh love pace and rosy and fleetway and shadow and sonic and niku and pace and metal sonic and surge and manic and lord x and faker and pace and mephiles and silver and tenna and end and majin and did i already say pace?
 
-fav ships: pasy, sonadow, sonamy, silvaze, shadouge, knuxouge, spamtenna, and willuna??? (willow x luna) idk what to call that..
+fav ships: pasy, sonadow, sonamy, silvaze, shadouge, knuxouge, spamtenna, majinx, and willuna??? (willow x luna) idk what to call that..
 
-fandoms: sth/sonic.exe, fnaf, deltarune, tally hall, chonny jash, will wood, invander zim, and more i think
+fandoms: sth/sonic.exe, fnaf, deltarune, tally hall, chonny jash, will wood, invander zim, dandy's world, slopsaken (/j), and more i think
 
-thats all for today, come back soon?
+thats all for today. come back soon?
 
-<img width="512" height="134" alt="unnamed" src="https://github.com/user-attachments/assets/c7c2be05-ba48-402d-ae83-2ff2baf4126d" />
+![unnamed](https://github.com/user-attachments/assets/d1bfbbf7-0b69-405d-b409-20929b732502)
+![unnamed](https://github.com/user-attachments/assets/1c6fdb55-c592-4539-b4db-71bfc18bdf08)
