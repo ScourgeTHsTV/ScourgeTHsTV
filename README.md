@@ -3,6 +3,14 @@
 
 <img width="330" height="330" alt="unnamed" src="https://github.com/user-attachments/assets/f56c2488-28a7-4b5b-a676-f384c0bc64fa" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Slab&size=15&pause=950&color=120842&width=435&lines=does+he+remember%3F;does+he+think+about+it%3F;does+he+want+to%3F;he+wont+talk+of+it...;hes+so+quiet+now+after+the...;nevermind.)](https://git.io/typing-svg)
+hello! im pace! you can also call me lenlo. im glad you're here!
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Henny+Penny&size=15&pause=1000&color=3B24A6&width=435&lines=i+dont+want+to.;i+do.;not+at+all.+i+hate+thinking.;...;after..%3F;hm.)](https://git.io/typing-svg)
+PLEASE int, c+h anytime, even if i'm with someone (unless they don't want you to). any ships, i wanna see your rarepairs too.
+
+live laugh love pace and rosy and fleetway and shadow and sonic and niku and silver and pace and tenna
+
+fav ships: pasy, sonadow, sonamy, silvaze, shadouge, knuxouge, spamtenna, and willuna??? (willow x luna) idk what to call that..
+
+fandoms: sth/sonic.exe, fnaf, deltarune, tally hall, chonny jash, will wood, invander zim, and more i think
+
+thats all for today, come back soon?
