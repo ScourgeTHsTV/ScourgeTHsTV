@@ -7,7 +7,7 @@
 
 hello! im pace! you can also call me lenlo. im glad you're here!
 
-PLEASE int, c+h anytime, even if i'm with someone (unless they don't want you to). any ships, i wanna see your rarepairs too.
+PLEASE int, c+h anytime, even if i'm with someone (unless they don't want you to). basic dni. any ships, i wanna see your rarepairs too.
 
 live laugh love pace and rosy and fleetway and shadow and sonic and niku and pace and metal sonic and surge and manic and lord x and faker and pace and mephiles and silver and tenna and tails and majin and did i already say pace?
 
