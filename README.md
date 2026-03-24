@@ -8,7 +8,7 @@ wsg im scourge. you can also call me lenlo or pace.
 
 int, c+h anytime, even if i'm with someone (unless they don't want you to). basic dni. any ships.
 
-fandoms: sth/sonic.exe, fnaf, deltarune, tally hall, chonny jash, will wood, invander zim, dandy's world, slopsaken (/j), and more i think..
+fandoms: sth/sonic.exe, fnaf, deltarune, tally hall, chonny jash, will wood, invader zim, dandy's world, slopsaken (/j), and more i think..
 
 tgats it lmao
 
@@ -16,4 +16,4 @@ tgats it lmao
 
 ![download (30)](https://github.com/user-attachments/assets/c11b1612-3ab6-42b6-b4ff-c72f08643348)
 
-31 ermmm pathetic scourgelings <3
+31 pathetic scourgelings <3
