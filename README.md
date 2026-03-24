@@ -8,6 +8,8 @@ wsg im scourge. you can also call me lenlo or pace.
 
 int, c+h anytime, even if i'm with someone (unless they don't want you to). basic dni. any ships.
 
+DO NOTTTT COPY DIRECTLY PELASEES you can take inspiration tho, i dont mind that :]
+
 fandoms: sth/sonic.exe, fnaf, deltarune, tally hall, chonny jash, will wood, invader zim, dandy's world, slopsaken (/j), and more i think..
 
 tgats it lmao
