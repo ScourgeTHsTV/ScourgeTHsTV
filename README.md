@@ -1,21 +1,13 @@
 <div align=center>
-<h1 align="center">❝ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&size=23&pause=1000&color=19a417&center=true&vCenter=true&width=435&lines=ALL+HAIL+THE+KING,+BABY" alt="Typing SVG" /></a> ❞</h1>
+<img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&size=23&pause=500&color=19a417&center=true&vCenter=true&width=435&lines=ALL+HAIL+TO+THE+KING+BABY!;not+quite+babe,;but+a+SCOURGE+all+the+same;XD"
+  
+![1000108385](https://github.com/user-attachments/assets/55a87cc9-66a5-48f2-8a4d-e686033cf3a9)
+![1000108392](https://github.com/user-attachments/assets/c73a8780-ffaa-459c-af25-87d5934b3462)
 
+neither of those made by me, found em on pinterest
 
-![download (29)](https://github.com/user-attachments/assets/a374eada-316e-4c8c-b4bf-e91e2fefeaec)
+<a href="https://kingscourge.atabook.org">⋆˚꩜｡ ATA ⋆｡𖦹°⭒˚｡⋆</a> <br>
 
-wsg im scourge. you can also call me lenlo or pace.
+ִ<a href="https://guns.lol/thekingscourge">₊˚°.♱˙⋆✮GUNS˚₊‧⁺⋆♱
 
-int, c+h anytime, even if i'm with someone (unless they don't want you to). basic dni. any ships.
-
-DO NOTTTT COPY DIRECTLY PELASEES you can take inspiration tho, i dont mind that :]
-
-fandoms: sth/sonic.exe, fnaf, deltarune, tally hall, chonny jash, will wood, invader zim, dandy's world, slopsaken (/j), and more i think..
-
-tgats it lmao
-
-![download (31)](https://github.com/user-attachments/assets/d2581f54-da25-454c-b66c-9fc4090d790d)
-
-![download (30)](https://github.com/user-attachments/assets/c11b1612-3ab6-42b6-b4ff-c72f08643348)
-
-32 pathetic scourgelings <3
+33 pathetic scourgelings <3
