@@ -10,4 +10,4 @@ neither of those made by me, found em on pinterest
 
 ִ<a href="https://guns.lol/thekingscourge">₊˚°.♱˙⋆✮GUNS˚₊‧⁺⋆♱
 
-33 pathetic scourgelings <3
+34 pathetic scourgelings <3
