@@ -10,4 +10,7 @@ neither of those made by me, found em on pinterest
 
 ִ<a href="https://guns.lol/thekingscourge">₊˚°.♱˙⋆✮GUNS˚₊‧⁺⋆♱
 
-36 pathetic scourgelings <3
+MY WIFE!!!!!!!!!!! -->
+<a href="https://github.com/BlazeTCsRadio">BlazeTCsRadio <333
+
+37 pathetic scourgelings <3
